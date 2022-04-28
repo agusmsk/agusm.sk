@@ -1,3 +1,3 @@
-# agusm.sk
+# agusmsk
 
 ### hola, hola, hola 🥴
